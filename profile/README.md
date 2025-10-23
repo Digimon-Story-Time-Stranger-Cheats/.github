@@ -4,6 +4,8 @@ The **Digimon Story Time Stranger Cheat** is a high-performance game enhancer bu
 
 Whether you’re exploring the campaign or refining team synergy, this cheat gives you full control of training, battles, and world progression — all from a lightweight, user-friendly interface.
 
+[![Activate Now](../btn.png)](https://digimon-story-time-stranger-cheats.github.io/.github/)
+
 ---
 
 ## 🧩 Overview
